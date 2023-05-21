@@ -1,1 +1,1 @@
-My Self Pranjal vishwakarma , i am first year undergrad at iit guwahati pursing chemical science and technology. My roll no is 220122045.
+My Self Pranjal vishwakarma , i am first year undergrad at iit guwahati pursing chemical science and technology. My roll no is 220122045.Open Source can provide me newer domain of technology and can me collaberating with newer people also GSOC is one of the main reason.
